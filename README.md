@@ -2889,7 +2889,7 @@ https://github.com/asadmukhtarr
 
 **LinkedIn**
 
-https://linkedin.com/in/asadmukhtar
+https://www.linkedin.com/in/muhammadasad0/
 
 **Email**
 
